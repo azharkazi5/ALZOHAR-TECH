@@ -5,6 +5,9 @@ azhar
 tony
               i am tacking in english
 
+	      but i cant understan what iam said 
+
+
 
 
 
